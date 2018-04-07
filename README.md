@@ -1,9 +1,9 @@
 # hw6
-![](https://cdn1.savepice.ru/uploads/2018/4/7/ede55f197565d07a143d18d33119e3f7-full.png)
+![](http://ipic.su/img/img7/fs/1.1523120128.png)
 
-![](https://cdn1.savepice.ru/uploads/2018/4/7/540ffaf95ddfa458cadaca915a6d5f59-full.png)
+![](http://ipic.su/img/img7/fs/2.1523120166.png)
 
-![](https://cdn1.savepice.ru/uploads/2018/4/7/84ac6e92b1b80c1bca0a3d23b90a4ad4-full.png)
+![](http://ipic.su/img/img7/fs/3.1523120189.png)
 
 ![](https://cdn1.savepice.ru/uploads/2018/4/7/446cabae3b5f5121c9230678b97192fa-full.png)
 
